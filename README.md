@@ -6,7 +6,7 @@ By the way in order to log into the gmail you'll use for spamming you need 2 ste
 
 https://www.youtube.com/watch?v=J4CtP1MBtOE
 ---------------------
-VIRUSTOTAL LINK: https://www.virustotal.com/gui/file/8e7f4fc6ca9631a45600d47fd679eb5085105a80883c658a1567a8a72eaa920a/summary
+VIRUSTOTAL LINK: https://www.virustotal.com/gui/file/abfddd4d8094ba8f4f562aa614f0d9fab10f5015eb99938ed85e1a0d359a7362?nocache=1
 ---------------------
 Discord Tag: F3V4R#6608
 ---------------------
